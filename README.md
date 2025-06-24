@@ -1,5 +1,10 @@
-## Hi there 👋
-
+## 啥都不会，垃圾制造者      🗑 🗑 🗑
+## Nothing, garbage maker    
+## 何もないよ、ゴミ製造者
+## Акгьы, агәамсамҭҩы
+## Юушье бэшэ, хог хаягша
+## કંઈ નહીં, કચરો બનાવનાર
+## Ntacyo, ukora imyanda
 <!--
 **xiaoccin/xiaoccin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
